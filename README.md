@@ -1,4 +1,4 @@
-# Album Kesayanganku - Khusnul 💖
+# Album Kesayanganku - Sunul 💖
 
 Sebuah album digital interaktif dengan efek 3D dan animasi sinematik, dibuat khusus untuk mengabadikan momen-momen indah bersama Shafira.
 
